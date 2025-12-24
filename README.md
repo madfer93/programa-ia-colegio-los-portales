@@ -234,9 +234,9 @@ Los derechos de uso y distribución serán acordados con la institución.
 
 Para consultas sobre este proyecto:
 
-- **WhatsApp:** 315 XXX XXXX
-- **Email:** contacto@variedadesjym.com
-- **Web:** [Por definir]
+- **WhatsApp:** 3045788873
+- **Email:** madfer19993@gmail.com
+- **Web:** https://madfer93.github.io/Perfil-comercial-Manuel/
 
 ---
 
